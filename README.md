@@ -1,2 +1,2 @@
-# ZWIARIOWANY-MOD
-Zwariowany mod do FNF. Zapraszam!
+Colored Mod is here! There are no new songs, only colorings! The textures on pixel mode are also changed. Unfortunately, the dialogues are not changed. The icons on the health bar have changed. The menu has changed too. There is something different in each mode. The boyfriend icon is, for example, in the usual yellow on pixel green mode. We are glad that you are here! Download our mod and check it out! Goodbye and have a nice day!
+Colered Mod jest już tutaj!. Zapraszam! Uwaga, nie ma nowych piosenek tylko inne tekstury! Też są zmienione tekstury na trybie pikselowym. Dialogi niestety nie są zmienione. Ikony na pasku zdrowia się zmieniły. Menu też się zmieniło. Na każdym trybie coś wygląda inaczej. Ikonka boyfrienda jest naprzykład na zwykłym trybie żółty na pikselowym zielona. Cieszymy się że tu jesteś! Pobierz naszego moda i go sprawdź! Do widzenia i miłego dnia!
